@@ -9,6 +9,6 @@
 
 📫 How to reach me: [**nithinnaveenraja388@gmail.com**](mailto:nithinnaveenraja388@gmail.com)
  📱 Contact number: [**6383118760**]
-🔗 [Connect with me on LinkedIn](www.linkedin.com/in/nithin-l-raja-58b658268)
+🔗 [Connect with me on LinkedIn](https://www.linkedin.com/in/nithin-l-raja-58b658268/)
 
 
